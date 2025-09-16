@@ -1,1 +1,1 @@
-#Investigaciones que envió la profesora
+Investigaciones que envió la profesora
